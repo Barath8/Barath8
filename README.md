@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **barathmurugesan6@gmail.com**
 
-- ⚡ Fun fact **Coding is easy we make it complex**
+- ⚡ Fun fact -**Coding is easy we make it complex**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
